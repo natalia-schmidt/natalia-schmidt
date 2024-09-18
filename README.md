@@ -19,4 +19,4 @@ I love building applications that I can use in my daily life. Even if similar to
 
 📫 Let's Connect  
 Email: natyschmidt.01@gmail.com  
-LinkedIn: [Natalia Schmidt]([https://www.linkedin.com/in/yourprofile](https://www.linkedin.com/in/natalia-schmidt-0249a11ba/))
+LinkedIn: [Natalia Schmidt](https://www.linkedin.com/in/natalia-schmidt-0249a11ba/)
