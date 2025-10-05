@@ -1,2 +1,5 @@
-Student here, old (and new) stuff sucks but free of AI :) 
-Most of new stuff is private :P
+Student here, old stuff sucks but free of AI :) 
+
+New stuff also sucks lol
+
+Most projects are private :P
